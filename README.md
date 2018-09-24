@@ -36,3 +36,4 @@ In this assignment I will describe/instruct how to create a worship set for chur
 - Prayer between "Give Thanks" and "I'm Forever Grateful"
 - Practice
 - Service
+
