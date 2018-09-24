@@ -56,9 +56,7 @@ Depending on the comfort of songs with the musicians, practice times will vary. 
 
 ## Service
 Feed off your audience! If it appears the audience is losing interest or getting bored, build the music. Increase tempo, add more crescendos, decrescendos, etc. 
-
 If the audience is being heavily impacted by the song, maybe repeat a chorus or keep playing the chord progression near the end to allow for more reflection/prayer time. 
-
 If the audience is older, and they appear to be getting tired or weak from standing, offer for the audience to sit (or stand) as they need or are able to. 
 
 Worship is not about the technicality of the piece, or the ability to play intricatly and precisely, but rather as an act of praise. 
