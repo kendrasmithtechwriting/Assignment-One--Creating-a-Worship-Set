@@ -23,10 +23,10 @@ Below is a list of the steps to take when creating a sucessful worship set:
 #### Why it is Important
 
 It is important to evaluate the message being given so the worship aligns with the message being given. The correlation of the two allow the congregation to focus in on the right mindset. Allowing the congregation time in worship to focus on a specific theme that will be discussed throughout the service allows personal reflection time so when the message is being given, they can quickly apply it to their individual life. 
-Focusing on the scriptures gives you ideas for songs. Many worship songs are written around key bible verses.
-Themes in sermons are important. They are the main ideas; main point being made. Defining the theme of the sermon will allow you to pick the same theme for worship so the entirety of the service will come in full circle. 
-As mentioned in the introduction, audience identification plays a key role in song choice. You want to pick age appropriate songs so the congregation does not get bored with the worship service, but rather stays involved.
-Defining the setting..
+  Focusing on the scriptures gives you ideas for songs. Many worship songs are written around key bible verses.
+  Themes in sermons are important. They are the main ideas; main point being made. Defining the theme of the sermon will allow you to pick the same theme for worship so the entirety of the service will come in full circle. 
+  As mentioned in the introduction, audience identification plays a key role in song choice. You want to pick age appropriate songs so the congregation does not get bored with the worship service, but rather stays involved.
+  Defining the setting...
 #### This is what it looks like:
 
 - Thanksgiving service about giving thanks with a grateful heart
