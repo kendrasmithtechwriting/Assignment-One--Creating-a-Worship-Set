@@ -1,8 +1,8 @@
 # Assignment One--Creating a Worship Set
 
 ## Introduction
-Creating a worship set requires critical thinking geared towards end goals. Many times when thinking of creating worship sets, many believe it has to be created by a superiorly musically inclined person. However, this is un-true. While it is beneficial to have a musically inclined person creating a set, its often good to keep in mind that it is more about the message being given through the lyrics of the song than the actual music being made by instruments. As a whole, the audience of worshippers typically do not pay attention to whether or not you are 3/4 time or 4/4, they do try and determine what chord progression you are using, and they certaintly do not particularly care about what key signature you are in. What the audience of worshippers do care about is that they are able to praise God in their act of worship and that the music being led are songs they all can join in on as their act of praise and that the songs are impactful as they worship. 
-For example, in an audience of Wee Worshippers (Pre-School-2nd grade), if you sing "The Old Rugged Cross" they are likely to stand there in silence and not understand what the lyrics are saying because it is not an age appropriate song. It will appear that their time of worship was almost meaningless for them. But if you sing "Rise and Shine" in the same audience of Wee Worshippers, the children notice the upbeat rhythm of the song, they catch the simplistic phrases, and the melody becomes stuck in their head. They begin worshipping God in an exciting and jubilant manner because the song was appropriate for the audience. But if you flip the scenario and sing "Rise and Shine" in an audience full of high-schoolers, they are probably reluctant to join in as an act of worhsip. 
+Creating a worship set requires critical thinking geared towards end goals. Many times when thinking of creating worship sets, many believe it has to be created by a superiorly musically inclined person. However, this is un-true. While it is beneficial to have a musically inclined person creating a set, its often good to keep in mind that it is more about the message being given through the lyrics of the song than the actual music being made by instruments. As a whole, the audience of worshippers typically do not pay attention to whether or not you are 3/4 time or 4/4, they do try and determine what chord progression you are using, and they certainly do not particularly care about what key signature you are in. What the audience of worshippers do care about is that they are able to praise God in their act of worship and that the music being led are songs they all can join in on as their act of praise and that the songs are impactful as they worship. 
+For example, in an audience of Wee Worshippers (Pre-School-2nd grade), if you sing "The Old Rugged Cross" they are likely to stand there in silence and not understand what the lyrics are saying because it is not an age appropriate song. It will appear that their time of worship was almost meaningless for them. But if you sing "Rise and Shine" in the same audience of Wee Worshippers, the children notice the upbeat rhythm of the song, they catch the simplistic phrases, and the melody becomes stuck in their head. They begin worshipping God in an exciting and jubilant manner because the song was appropriate for the audience. But if you flip the scenario and sing "Rise and Shine" in an audience full of high-schoolers, they are probably reluctant to join in as an act of worship. 
 ## Things to Consider
 Below is a list of the steps to take when creating a sucessful worship set:
 - Evaluate message being given
@@ -20,8 +20,14 @@ Below is a list of the steps to take when creating a sucessful worship set:
 - Worship Time!
 
 ** Remember its for the kingdom of God and an act of showing love and praise to God, not about your best ability to put on a good show
+### Why it is Important
 
-### Example
+It is important to evaluate the message being given so the worship aligns with the message being given. The correlation of the two allow the congregation to focus in on the right mindset. Allowing the congregation time in worship to focus on a specific theme that will be discussed throughout the service allows personal reflection time so when the message is being given, they can quickly apply it to their individual life. 
+Focusing on the scriptures gives you ideas for songs. Many worship songs are written around key bible verses.
+Themes in sermons are important. They are the main ideas; main point being made. Defining the theme of the sermon will allow you to pick the same theme for worship so the entirety of the service will come in full circle. 
+As mentioned in the introduction, audience identification plays a key role in song choice. You want to pick age appropriate songs so the congregation does not get bored with the worship service, but rather stays involved.
+Defining the setting..
+#### This is what it looks like:
 
 - Thanksgiving service about giving thanks with a grateful heart
 - various verses throughout bible and christianity as a whole
@@ -48,7 +54,7 @@ The next song, "I'm Forever Grateful" is also in 4/4 time but is played in the k
 
 On the last verse, the transition into the next song, "Forever" will be started. "Forever" is also in 4/4 time and is to be played Reverently at 72 beats. This song will be played in the key of E flat. The first chord will be played twice, one for the vocalist to ask the congregation to sit down, and the next to start the song. Leading up to the chorus, the band should begin to build. Beginning to crescendo, the tempo may increase from 72 to 74 (only slightly, but enough to feel the build because of the power of the chorus). The song should gradually resolve and lead into the last song "Grateful". 
 
-"Grateful" is also in 4/4 time and its tempo should be around 92. You can adjust the tempo based on musical ability or audience preference. Some congregations do not use upbeat songs, depending on the age group and setting. Since this is the final song before the message and the audience is mixed aged groups, 92 is appropriate. It is a moderate tempo, great for this song. This song will be played in D Flat Major. To transition, play an E flat, B flat, C minor, to D flat chords in that order. Then start the chords for "Graetful". It begins with an A/C#.
+"Grateful" is also in 4/4 time and its tempo should be around 92. You can adjust the tempo based on musical ability or audience preference. Some congregations do not use upbeat songs, depending on the age group and setting. Since this is the final song before the message and the audience is mixed aged groups, 92 is appropriate. It is a moderate tempo, great for this song. This song will be played in D Flat Major. To transition, play an E flat, B flat, C minor, to D flat chords in that order. Then start the chords for "Grateful". It begins with an A/C#.
 
 Do a natural build with the song and then after ending of the last verse the band can decrescendo into a prayer time with a deacon or as the preacher comes to stage. 
 
