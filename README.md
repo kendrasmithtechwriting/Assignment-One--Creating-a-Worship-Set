@@ -20,7 +20,7 @@ Below is a list of the steps to take when creating a sucessful worship set:
 - Worship Time!
 
 ** Remember its for the kingdom of God and an act of showing love and praise to God, not about your best ability to put on a good show
-### Why it is Important
+#### Why it is Important
 
 It is important to evaluate the message being given so the worship aligns with the message being given. The correlation of the two allow the congregation to focus in on the right mindset. Allowing the congregation time in worship to focus on a specific theme that will be discussed throughout the service allows personal reflection time so when the message is being given, they can quickly apply it to their individual life. 
 Focusing on the scriptures gives you ideas for songs. Many worship songs are written around key bible verses.
