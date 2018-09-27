@@ -3,6 +3,8 @@
 ## Introduction
 Creating a worship set requires critical thinking geared towards end goals. Many times when thinking of creating worship sets, many believe it has to be created by a superiorly musically inclined person. However, this is un-true. While it is beneficial to have a musically inclined person creating a set, its often good to keep in mind that it is more about the message being given through the lyrics of the song than the actual music being made by instruments. As a whole, the audience of worshippers typically do not pay attention to whether or not you are 3/4 time or 4/4, they do try and determine what chord progression you are using, and they certainly do not particularly care about what key signature you are in. What the audience of worshippers do care about is that they are able to praise God in their act of worship and that the music being led are songs they all can join in on as their act of praise and that the songs are impactful as they worship. 
 For example, in an audience of Wee Worshippers (Pre-School-2nd grade), if you sing "The Old Rugged Cross" they are likely to stand there in silence and not understand what the lyrics are saying because it is not an age appropriate song. It will appear that their time of worship was almost meaningless for them. But if you sing "Rise and Shine" in the same audience of Wee Worshippers, the children notice the upbeat rhythm of the song, they catch the simplistic phrases, and the melody becomes stuck in their head. They begin worshipping God in an exciting and jubilant manner because the song was appropriate for the audience. But if you flip the scenario and sing "Rise and Shine" in an audience full of high-schoolers, they are probably reluctant to join in as an act of worship. 
+
+Worship sets are a creative way to express praise to God and it allows the congregation to be involved actually in service. Creating a worship set is intimidating at first, but once you get the process down, it is will come naturally. Below you will find the major steps used when creating a worship set as well as examples of worship sets constructed under this process. It is simple, it is thoughtful, and it allows for the service to come full circle. Being able to stand on stage and watch Gods people worship Him and feel the power of the music you are making is an eye-opening experience. May your passion never cease. 
 ## Things to Consider
 Below is a list of the steps to take when creating a successful worship set:
 - Evaluate message being given
@@ -91,3 +93,15 @@ Worship is not about the technicality of the piece, or the ability to play intri
 "Let everything that has breath Praise the Lord. Praise the Lord" Psalm 150:6
 
 "Praise be to the God and Father of our Lord Jesus Christ, the Father of compassion and the God of all comfort,  who comforts us in all our troubles, so that we can comfort those in any trouble with the comfort we ourselves receive from God" 1 Corinthians 1:3-4
+
+## Frequently Asked Questions
+**Q** : What is a worship set?
+**A** : A worship set is a group of songs used to worship. It's a list of songs sung during worship. 
+
+**Q** : Do you have to play music?
+**A** : No. The Church of Christ actually does not use any instrumentation in their services. It can all be done acapella (using only voices)
+
+**Q** : How long does a set need to last?
+**A** : A set varies in length. It can be as short as one verse, to as long as a couple hours. It really depends on the setting. It big conferences, the set may be lengthy, but it small bible studies they may be short and only need one song. For typical Sunday morning services, a set of 3-4 songs is usually sufficient. 
+
+
