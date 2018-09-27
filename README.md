@@ -30,7 +30,24 @@ It is important to evaluate the message being given so the worship aligns with t
  
  As mentioned in the introduction, audience identification plays a key role in song choice. You want to pick age appropriate songs so the congregation does not get bored with the worship service, but rather stays involved.
  
- Defining the setting...
+ Defining the setting allows you to determine the power of the music. You do not want an up-beat song for a funeral and a slow song for a high power youth conference. 
+ 
+ Picking musicians allows you ability to pick song difficulty. Some songs use many instruments or many chords, techniques, rhythms, etc. and not all musicians have the capibility to play at some levels. Picking the musicians allows different instrumentation as well as more freedom with sound produced. 
+ 
+Browsing songs allows you a wide range of choices. It allows you to see many songs as once instead of playing the same four songs that have been stuck in your head the past couple days. It reminds you of older songs like hymns, or can even allow you to see new contemporary songs. It provides variation. 
+
+Picking songs in accordance to message, like stated before, allows the service to come full circle. Be careful to watch song times, and do not plan for seven songs when you only have time for three. It can make the pastor or speaker angry, and leave the congregation restless. 
+
+Arranging songs in order from buildup provides a rhythm to the service. It allows for a rise and fall for the audience, their emotion, and their thought processes. Starting slow and building up allows the audience time to get involved gradually with worship rather than jumping straight in. And allow a slow resolution allows for more reflection time before the message is given. It allows the audience/congregation time to "settle down". 
+
+Picking the key depends on the musicians and vocalist. Some key signatures have crazy key changes in the middle, weird chords, and the vocals may be out of range for your vocalist. Determining key signatures is best decided during the first practice as you play around to figure out what works best for the group as a whole. You can always find a way to transition from piece to piece, but it may be tricky to make every song work by only using one key signature for the entire set.
+
+Transitions can either be planned or unplanned. You may rest easier knowing how to transition from each piece. Transitions also allow for a moment of rest, and serve as a great time to re-group musically. Transitioning may be tricky at first, but once you get the hang of it, and figure out what works best for the band, it will no longer be an awkward bout of trial and error. 
+
+Practice allows time to nail out rough patches, decide key signature, plan for transitions, and get the feel for the service. You learn they way each musician plays, and you can figure out what version works best for the band. This is the best time to figure out any problem areas that need to be changed futuristically as well. Whether its the microphones, set up, or songs chosen. 
+
+Worship, let the praise begin! The moment we have all be waiting for and working towards. Everything that you have spent the last couple hours or nights preparing will all be used to serve the glory of God. 
+
 #### This is what it looks like:
 
 - Thanksgiving service about giving thanks with a grateful heart
