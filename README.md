@@ -96,12 +96,15 @@ Worship is not about the technicality of the piece, or the ability to play intri
 
 ## Frequently Asked Questions
 **Q** : What is a worship set?
+
 **A** : A worship set is a group of songs used to worship. It's a list of songs sung during worship. 
 
 **Q** : Do you have to play music?
+
 **A** : No. The Church of Christ actually does not use any instrumentation in their services. It can all be done acapella (using only voices)
 
 **Q** : How long does a set need to last?
+
 **A** : A set varies in length. It can be as short as one verse, to as long as a couple hours. It really depends on the setting. It big conferences, the set may be lengthy, but it small bible studies they may be short and only need one song. For typical Sunday morning services, a set of 3-4 songs is usually sufficient. 
 
 
