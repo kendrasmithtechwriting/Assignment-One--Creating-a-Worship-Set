@@ -110,3 +110,4 @@ ________________________________________________________________________________
 **A** : A set varies in length. It can be as short as one verse, to as long as a couple hours. It really depends on the setting. It big conferences, the set may be lengthy, but it small bible studies they may be short and only need one song. For typical Sunday morning services, a set of 3-4 songs is usually sufficient. 
 
 
+
